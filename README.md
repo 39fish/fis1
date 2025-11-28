@@ -114,7 +114,7 @@
     <img width="140" src="https://cdn.discordapp.com/attachments/1444004943295021138/1444007483105349804/Tumblr-l-448592125895123.gif?ex=692b2444&is=6929d2c4&hm=3f0dee789a62ac9b5680e331dddafbb5c700ae87c6be9e4e990c201071793887&">
   <a   
    <p align="center">
-    <img width="140" src="https://cdn.discordapp.com/attachments/1444004943295021138/1444007248350285965/tumblr_cef48cdacd8ff306801056196db4941c_3e6226a0_100.gif.webp?ex=692b240c&is=6929d28c&hm=e3f2b2a4023a3de3dde3cf75638ee0b66ea835e1d16ebc93c157414c93df6973&">
+    <img width="140" src="https://cdn.discordapp.com/attachments/1444004943295021138/1444056738734018611/tumblr_2e3b5bba45ce95204c0db8f5a13787c5_5cb85b07_250.gif.webp?ex=692b5223&is=692a00a3&hm=44d8a98ee536f02cd42deb91785cc93737d9fbd7140f9e82f045e305f0496aaf">
   <a   
  <p align="center">
     <img width="140" src="https://cdn.discordapp.com/attachments/1444004943295021138/1444005321952596058/ezgif-5b56a12c27dd665e.gif?ex=692b2241&is=6929d0c1&hm=417cd81401650e737441a83bb26db7b0a3ffaebdf8c0f0015b7070e73656aa08&&">
